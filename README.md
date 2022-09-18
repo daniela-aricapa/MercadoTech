@@ -1,4 +1,4 @@
 Diana Vargas :blush: 
 Andrea Romero
 Elisabel Rojas:smiley:
-Daniela Aricapa 
+Daniela Aricapa :smile: 
